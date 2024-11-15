@@ -62,7 +62,7 @@ If you like **ChatSphere**, please give it a star on GitHub! ⭐
 
 ---
 
-### Thank you for visiting! 💬❤️
+### Thank you for visiting!!! 💬❤️
 
 <div align="center">
     <a href="#header">
